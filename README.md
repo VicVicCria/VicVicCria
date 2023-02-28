@@ -1,2 +1,3 @@
 # Victória Padella
-(ﾉ◕ヮ◕)ﾉ*:･ﾟ✧
+## Apenas Vic para os mais próximos
+✪ ω ✪
